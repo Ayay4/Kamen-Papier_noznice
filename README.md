@@ -1,0 +1,1 @@
+# Kamen-Papier_noznice
